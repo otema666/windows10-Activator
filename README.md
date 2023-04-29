@@ -1,1 +1,2 @@
-# windows10-Free
+# Windows10 license activator
+## Run batch file and select version to activate
